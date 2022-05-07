@@ -4,7 +4,7 @@
 
 You can also call me K. I'm a self-taught passionate FrontEnd developer from Thailand :thailand:
 
-Part-time Bs. Computer Science student >>open for opportunities💥 🌈
+Part-time Bs. Computer Science student >>open for all challenging 💥 🌈
 
 -----
 
