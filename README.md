@@ -1,13 +1,17 @@
-Hi, Chawin here :bowtie:
+![Untitled-3-01](https://user-images.githubusercontent.com/71195292/167269942-851d05bf-8691-4890-9196-7a3afab2a03c.png)
+
 -----
 
-You can also call me K :shipit::laughing:
+You can also call me K. I'm a self-taught passionate FrontEnd developer from Thailand :thailand:
 
-Part-time Computer Science student >>open for opportunities💥 🌈
+Part-time Bs. Computer Science student >>open for opportunities💥 🌈
 
-**Reach me & inspire me: chawinkk@gmail.com**
+-----
 
-My personal website hosted on GitHub :https://chawinkk.github.io/chawinkk.github.oi/
+**:e-mail:  [Reach me | Ask me about anything | Click me](chawinkk@gmail.com)**
 
-Projects I worked on recently:
-Not as polished but I'm working on it. Thanks 😁:sunglasses::smiling_imp:
+**:trollface: [My personal website powered by GitHub](https://chawinkk.github.io/chawinkk.github.oi/)**
+
+-----
+
+Projects I worked on recently: Not as polished but I'm working on it. Thanks 😁
