@@ -8,7 +8,9 @@ Part-time Bs. Computer Science student >>open for all challenging 💥 🌈
 
 -----
 
-**:e-mail: chawinkk@gmail.com:  [Reach me | Ask me about anything | Click me](chawinkk@gmail.com)**
+**:e-mail: chawinkk@gmail.com:**  
+
+**:speech_balloon: [Reach me | Ask me about anything | Click me](chawinkk@gmail.com)**
 
 **:trollface: [My personal website powered by GitHub](https://chawinkk.github.io/chawin.github.oi/)**
 
