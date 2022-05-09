@@ -8,7 +8,7 @@ Part-time Bs. Computer Science student >>open for all challenging 💥 🌈
 
 -----
 
-**:email: chawinkk@gmail.com**  
+**:envelope: chawinkk@gmail.com**  
 
 **:speech_balloon: [Reach me | Ask me about anything | Click me](chawinkk@gmail.com)**
 
